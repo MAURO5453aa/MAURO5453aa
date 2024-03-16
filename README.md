@@ -17,5 +17,6 @@ Sobre mí
 ¡Hablemos! Puedes encontrarme en:
 
 📧 [oscar23pineda23@gmail.com]
+
 💬 LinkedIn: [www.linkedin.com/in/mauro-ph]
 
